@@ -1,0 +1,1 @@
+# ganti-password-7g
